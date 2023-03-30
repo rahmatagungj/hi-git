@@ -5,3 +5,4 @@
 3. Arti Hikmatullah Perbawana Sakti Buana
 4. Yudha Ananda
 5. Ahmad Hafid
+6. Rudy Gunawan 
