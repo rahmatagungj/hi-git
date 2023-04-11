@@ -8,4 +8,5 @@
 6. Rudy Gunawan 
 7. Ardha Irfan Hakim
 8. Ade Octa Brilyansyah
+9. Muhammad Ricky Alendra
 
