@@ -6,3 +6,4 @@
 4. Yudha Ananda
 5. Ahmad Hafid
 6. Ardha Irfan Hakim
+7. Ade Octa Brilyansyah
