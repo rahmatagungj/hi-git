@@ -5,5 +5,7 @@
 3. Arti Hikmatullah Perbawana Sakti Buana
 4. Yudha Ananda
 5. Ahmad Hafid
-6. Ardha Irfan Hakim
-7. Ade Octa Brilyansyah
+6. Rudy Gunawan 
+7. Ardha Irfan Hakim
+8. Ade Octa Brilyansyah
+
